@@ -1,1 +1,1 @@
-# Shiryu is a knight of Athena and, for mme, the best.
+# Shiryu is a knight of Athena and, for me, the best.
